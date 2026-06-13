@@ -1,1 +1,1 @@
-# Nodir.shop
+muhammadali-lang.github.io
